@@ -1,5 +1,6 @@
 # Aula2.1.1
 
 Bruna Marquezine
-Isis Valverde
+Angelina Jolie
 Edson Celulari
+Brad Pitt
